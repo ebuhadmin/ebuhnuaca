@@ -1,2 +1,0 @@
-# ebuhnuaca
-nuaca
